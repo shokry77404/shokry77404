@@ -12,9 +12,8 @@
 
 
 ### 📫 تواصل معي:
-- **📧 البريد الإلكتروني:** [your.email@example.com](mailto:your.email@example.com)  
-- **🔗 لينكدإن:** [linkedin.com/in/yourprofile](#)  
-- **🐦 تويتر:** [twitter.com/yourhandle](#)  
-- **💼 موقعي الشخصي:** [yourwebsite.com](#)  
+- **📧 البريد الإلكتروني:** [smdozm77@gmail.com](mailto:your.email@example.com)  
+- **🔗 لينكدإن:** [my linkedin](https://www.linkedin.com/in/smdozm-moh-b7b55233b/)  
+ 
 
 🚀 دائمًا أبحث عن فرص جديدة للتعلم والتطوير.
